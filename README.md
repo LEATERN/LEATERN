@@ -1,4 +1,4 @@
-[![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1121874163775328318/indir.gif)
+[![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1045724693048610837/IMG_20220506_212357.jpg)
 
 
 **Hi, I'm LEATERN**
