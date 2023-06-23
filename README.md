@@ -1,4 +1,4 @@
-![MasterHead](https://cdn.discordapp.com/attachments/1121875323844296814/1121875497530441808/image.png)
+![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1003336396708266067/ab69a754eddd826c1ee9fcd5f071ef24.png)
 
 
 
