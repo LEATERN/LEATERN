@@ -1,8 +1,4 @@
-![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1045724693048610837/IMG_20220506_212357.jpg)
-
-
-
-
+![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1003336396708266067/ab69a754eddd826c1ee9fcd5f071ef24.png)
 
 
 
